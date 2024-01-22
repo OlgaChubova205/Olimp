@@ -11,4 +11,9 @@ https://docs.google.com/document/d/1LYeXQX3_XT8BTSMCpcUhIqkFOlUVtoMT1rstrrlsPao/
 
 ![image](https://github.com/OlgaChubova205/Olimp/assets/112687883/180557a4-feb8-48a5-b59a-6edf67184510)
 
+траектория будущего
+
+![image](https://github.com/OlgaChubova205/Olimp/assets/112687883/a85e491b-d462-4c8b-8d49-0f391e98f41d)
+
+
 
